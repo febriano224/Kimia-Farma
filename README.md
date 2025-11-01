@@ -1,2 +1,2 @@
-Nama: Gilang Febriano
+Gilang Febriano
 Big Data analis Kimia Farma
